@@ -1,4 +1,4 @@
-# 💫 About Me:
+# Hello! I'm Nico Victorio
 I am a competitive, outgoing, and team-oriented individual. I always maintain a strong competitive spirit to achieve the best results in every challenge I face. I also have a friendly nature that makes it easy for me to get along with others and create positive bonds. I value teamwork and believe that good collaboration is the key to success. I always ready to cooperate with others, listen to and respect their perspectives, and make a significant contribution to achieve common goals.
 
 
